@@ -14,3 +14,7 @@ We are opened for an issues cause its not that simple and we know that this prog
 We appreciate that you wasting your time on that project to help us continue it.
 
 Social Media coming soon!
+
+**WARNING!!!
+
+**OUR INJECTOR CAN BE DETECTED AS A MALWARE! TURN OFF ANTIVIRUS TO USE ETS AUTOPILOT WITHOUR ANY PROBLEMS!!!**
